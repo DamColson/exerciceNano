@@ -1,0 +1,1 @@
+ouesh jsé po parler
